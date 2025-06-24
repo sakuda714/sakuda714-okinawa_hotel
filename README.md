@@ -1,0 +1,1 @@
+# sakuda714-okinawa_hotel
